@@ -4,4 +4,4 @@ Castorolie, ook bekend als ricinusolie, is een dikke, stroperige olie die rijk i
 
 🔧 *Productiesoort:* `koudgeperst`
 
-👉 Lees meer: [https://azulan.nl/atlas/castor-olie](https://azulan.nl/atlas/castor-olie)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/castor-olie)

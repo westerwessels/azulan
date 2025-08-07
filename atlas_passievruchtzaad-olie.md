@@ -4,4 +4,4 @@ Passievruchtzaadolie, ook bekend als maracuja-olie, wordt gewonnen uit de zaden 
 
 🔧 *Productiesoort:* `koudgeperst`
 
-👉 Lees meer: [https://azulan.nl/atlas/passievruchtzaad-olie](https://azulan.nl/atlas/passievruchtzaad-olie)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/passievruchtzaad-olie)

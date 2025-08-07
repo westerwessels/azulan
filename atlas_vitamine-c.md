@@ -10,4 +10,4 @@ Hoewel je vitamine C ook via voeding of supplementen kunt binnenkrijgen, bereikt
 Azulan gebruikt geen geïsoleerde vormen van vitamine C, zoals ascorbinezuur, maar verwerkt uitsluitend plantaardige oliën die van nature rijk zijn aan vitamine C.&nbsp;
 Zo blijft de antioxidantwerking behouden - effectief en in harmonie met wat de huid van nature herkent.
 
-👉 Lees meer: [https://azulan.nl/atlas/vitamine-c](https://azulan.nl/atlas/vitamine-c)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/vitamine-c)

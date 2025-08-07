@@ -4,4 +4,4 @@ Wortel CO2-extract is rijk aan bètacaroteen, provitamine A en antioxidanten. Vo
 
 🔧 *Productiesoort:* `koudgeperst`
 
-👉 Lees meer: [https://azulan.nl/atlas/wortel-extract](https://azulan.nl/atlas/wortel-extract)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/wortel-extract)

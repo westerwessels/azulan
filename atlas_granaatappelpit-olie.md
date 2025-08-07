@@ -4,4 +4,4 @@ Granaatappelolie is een rijke, krachtige olie die gewonnen wordt uit de zaden va
 
 🔧 *Productiesoort:* `koudgeperst`
 
-👉 Lees meer: [https://azulan.nl/atlas/granaatappelpit-olie](https://azulan.nl/atlas/granaatappelpit-olie)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/granaatappelpit-olie)

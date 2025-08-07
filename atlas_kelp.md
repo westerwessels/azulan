@@ -4,4 +4,4 @@ Kelp-olie is een innovatieve combinatie met een bruine alg die bekendstaat om ha
 
 🔧 *Productiesoort:* `dilute`
 
-👉 Lees meer: [https://azulan.nl/atlas/kelp](https://azulan.nl/atlas/kelp)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/kelp)

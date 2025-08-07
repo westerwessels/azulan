@@ -4,4 +4,4 @@ Maanenergie verrijkt de basis olieën van Azulan op energetisch vlak. Met deze e
 
 🔧 *Productiesoort:* `dilute`
 
-👉 Lees meer: [https://azulan.nl/atlas/maan-energie](https://azulan.nl/atlas/maan-energie)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/maan-energie)

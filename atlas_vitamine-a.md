@@ -7,4 +7,4 @@ Wat in cosmetica wél gebruikt mag worden, zijn provitamine A-verbindingen, zoal
 <br>
 Azulan maakt uitsluitend gebruik van plantaardige ingrediënten die van nature rijk zijn aan provitamine A, zoals bepaalde koudgeperste oliën en CO₂-extracten. Zo werken we met de intelligentie van de natuur - afgestemd op wat de huid echt nodig heeft, in haar eigen tempo.
 
-👉 Lees meer: [https://azulan.nl/atlas/vitamine-a](https://azulan.nl/atlas/vitamine-a)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/vitamine-a)

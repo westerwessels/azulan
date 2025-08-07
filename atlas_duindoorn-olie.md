@@ -4,4 +4,4 @@ Duindoornolie is een krachtige, oranje-rode olie die rijk is aan vitamine C, E e
 
 🔧 *Productiesoort:* `koudgeperst`
 
-👉 Lees meer: [https://azulan.nl/atlas/duindoorn-olie](https://azulan.nl/atlas/duindoorn-olie)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/duindoorn-olie)

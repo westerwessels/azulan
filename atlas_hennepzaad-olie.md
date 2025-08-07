@@ -4,4 +4,4 @@ Hennepolie is een evenwichtige, groenige olie boordevol omega-3 en omega-6 vetzu
 
 🔧 *Productiesoort:* `koudgeperst`
 
-👉 Lees meer: [https://azulan.nl/atlas/hennepzaad-olie](https://azulan.nl/atlas/hennepzaad-olie)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/hennepzaad-olie)

@@ -4,4 +4,4 @@ Teunisbloemolie is een delicate, plantaardige olie rijk aan gamma-linoleenzuur (
 
 🔧 *Productiesoort:* `koudgeperst`
 
-👉 Lees meer: [https://azulan.nl/atlas/teunisbloem-olie](https://azulan.nl/atlas/teunisbloem-olie)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/teunisbloem-olie)

@@ -6,4 +6,4 @@ Het helpt de huid diepgaand te hydrateren, onzuiverheden te absorberen en biedt 
 
 🔧 *Productiesoort:* `dilute`
 
-👉 Lees meer: [https://azulan.nl/atlas/algen](https://azulan.nl/atlas/algen)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/algen)

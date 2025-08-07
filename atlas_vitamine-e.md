@@ -4,4 +4,4 @@ Vitamine E is een krachtige antioxidant die de huid beschermt tegen oxidatieve s
 
 🔧 *Productiesoort:* `dilute`
 
-👉 Lees meer: [https://azulan.nl/atlas/vitamine-e](https://azulan.nl/atlas/vitamine-e)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/vitamine-e)

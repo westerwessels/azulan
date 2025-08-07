@@ -4,4 +4,4 @@ Camellia olie, ook bekend als Tsubaki-olie, wordt gewonnen uit de zaden van de C
 
 🔧 *Productiesoort:* `koudgeperst`
 
-👉 Lees meer: [https://azulan.nl/atlas/japanse-roos-olie](https://azulan.nl/atlas/japanse-roos-olie)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/japanse-roos-olie)

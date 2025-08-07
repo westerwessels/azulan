@@ -4,4 +4,4 @@ Rozenbottelbesextract wordt verkregen uit de vruchten van de hondsroos en is rij
 
 🔧 *Productiesoort:* `koudgeperst`
 
-👉 Lees meer: [https://azulan.nl/atlas/rozenbottelbes-extract](https://azulan.nl/atlas/rozenbottelbes-extract)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/rozenbottelbes-extract)

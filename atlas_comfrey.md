@@ -4,4 +4,4 @@ Comfrey oftewel Smeerwortel wordt gemaakt van de wortel van de Symphytum plant e
 
 🔧 *Productiesoort:* `maceraat`
 
-👉 Lees meer: [https://azulan.nl/atlas/comfrey](https://azulan.nl/atlas/comfrey)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/comfrey)

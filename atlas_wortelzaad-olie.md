@@ -4,4 +4,4 @@ Wortelzaadolie wordt verkregen door koude persing van de zaden van de wilde wort
 
 🔧 *Productiesoort:* `koudgeperst`
 
-👉 Lees meer: [https://azulan.nl/atlas/wortelzaad-olie](https://azulan.nl/atlas/wortelzaad-olie)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/wortelzaad-olie)

@@ -4,4 +4,4 @@ Broccoli-olie is een lichte, snel absorberende olie die rijk is aan omega-9 vetz
 
 🔧 *Productiesoort:* `koudgeperst`
 
-👉 Lees meer: [https://azulan.nl/atlas/broccoli-olie](https://azulan.nl/atlas/broccoli-olie)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/broccoli-olie)

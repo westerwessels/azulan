@@ -4,4 +4,4 @@ Duindoornbesolie is een intens voedende olie met een frisse, fruitige geur en ee
 
 🔧 *Productiesoort:* `koudgeperst`
 
-👉 Lees meer: [https://azulan.nl/atlas/duindoornbes-olie](https://azulan.nl/atlas/duindoornbes-olie)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/duindoornbes-olie)

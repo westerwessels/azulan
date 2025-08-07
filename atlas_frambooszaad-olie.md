@@ -4,4 +4,4 @@ Frambooszaadolie is een krachtige olie boordevol antioxidanten, essentiële vetz
 
 🔧 *Productiesoort:* `koudgeperst`
 
-👉 Lees meer: [https://azulan.nl/atlas/frambooszaad-olie](https://azulan.nl/atlas/frambooszaad-olie)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/frambooszaad-olie)

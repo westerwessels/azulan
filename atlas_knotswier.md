@@ -4,4 +4,4 @@ Knotswierolie is een krachtige bruine alg uit koude, schone zeewateren en staat 
 
 🔧 *Productiesoort:* `dilute`
 
-👉 Lees meer: [https://azulan.nl/atlas/knotswier](https://azulan.nl/atlas/knotswier)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/knotswier)

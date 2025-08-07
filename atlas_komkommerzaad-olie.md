@@ -4,4 +4,4 @@ Komkommerzaadolie is een lichte, verfrissende olie die rijk is aan linolzuur (di
 
 🔧 *Productiesoort:* `koudgeperst`
 
-👉 Lees meer: [https://azulan.nl/atlas/komkommerzaad-olie](https://azulan.nl/atlas/komkommerzaad-olie)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/komkommerzaad-olie)

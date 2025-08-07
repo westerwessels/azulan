@@ -4,4 +4,4 @@ Cactusvijgolie, ook bekend als prickly pear oil, is een zeldzame en luxueuze oli
 
 🔧 *Productiesoort:* `koudgeperst`
 
-👉 Lees meer: [https://azulan.nl/atlas/cactusvijg-olie](https://azulan.nl/atlas/cactusvijg-olie)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/cactusvijg-olie)

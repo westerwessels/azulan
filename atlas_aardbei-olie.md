@@ -6,4 +6,4 @@ Aardbei olie voedt diep zonder te verstoppen en bevordert een egale teint door h
 
 🔧 *Productiesoort:* `koudgeperst`
 
-👉 Lees meer: [https://azulan.nl/atlas/aardbei-olie](https://azulan.nl/atlas/aardbei-olie)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/aardbei-olie)

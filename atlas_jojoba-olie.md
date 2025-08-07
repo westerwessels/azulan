@@ -4,4 +4,4 @@ Jojoba olie is eigenlijk een vloeibare was met een structuur die sterk lijkt op 
 
 🔧 *Productiesoort:* `koudgeperst`
 
-👉 Lees meer: [https://azulan.nl/atlas/jojoba-olie](https://azulan.nl/atlas/jojoba-olie)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/jojoba-olie)

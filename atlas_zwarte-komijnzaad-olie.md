@@ -4,4 +4,4 @@ Zwarte komijnzaadolie, afkomstig uit de zaden van Nigella sativa, is een krachti
 
 🔧 *Productiesoort:* `koudgeperst`
 
-👉 Lees meer: [https://azulan.nl/atlas/zwarte-komijnzaad-olie](https://azulan.nl/atlas/zwarte-komijnzaad-olie)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/zwarte-komijnzaad-olie)

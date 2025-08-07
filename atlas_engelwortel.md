@@ -4,4 +4,4 @@ Engelwortel, gewonnen uit de wortel van de Angelica archangelica, heeft een aard
 
 🔧 *Productiesoort:* `maceraat`
 
-👉 Lees meer: [https://azulan.nl/atlas/engelwortel](https://azulan.nl/atlas/engelwortel)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/engelwortel)

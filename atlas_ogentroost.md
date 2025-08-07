@@ -4,4 +4,4 @@ Ogentroostolie wordt verkregen uit de plant Euphrasia officinalis en staat beken
 
 🔧 *Productiesoort:* `maceraat`
 
-👉 Lees meer: [https://azulan.nl/atlas/ogentroost](https://azulan.nl/atlas/ogentroost)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/ogentroost)

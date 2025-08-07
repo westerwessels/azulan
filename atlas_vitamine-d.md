@@ -11,4 +11,4 @@ Maar dat gebeurt alleen bij natuurlijk daglicht - dat komt dus niet uit een potj
 Dus geef je huid dus dagelijks licht en lucht. Even naar buiten, al is het maar 15 minuten. &nbsp;
 Je lichaam weet precies wat het ermee moet doen.
 
-👉 Lees meer: [https://azulan.nl/atlas/vitamine-d](https://azulan.nl/atlas/vitamine-d)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/vitamine-d)

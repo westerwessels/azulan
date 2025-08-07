@@ -4,4 +4,4 @@ Amandelolie is een milde, voedende olie rijk aan vitamine E en essentiële vetzu
 
 🔧 *Productiesoort:* `koudgeperst`
 
-👉 Lees meer: [https://azulan.nl/atlas/amandel-olie](https://azulan.nl/atlas/amandel-olie)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/amandel-olie)

@@ -4,4 +4,4 @@ Rozenbottelolie is een krachtige olie boordevol antioxidanten en essentiële vet
 
 🔧 *Productiesoort:* `koudgeperst`
 
-👉 Lees meer: [https://azulan.nl/atlas/rozenbottel-olie](https://azulan.nl/atlas/rozenbottel-olie)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/rozenbottel-olie)

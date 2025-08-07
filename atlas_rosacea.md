@@ -1,3 +1,3 @@
 # Rosacea
 
-👉 Lees meer: [https://azulan.nl/atlas/rosacea](https://azulan.nl/atlas/rosacea)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/rosacea)

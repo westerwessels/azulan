@@ -4,4 +4,4 @@ Zwarte bessen olie is een krachtige, voedende olie rijk aan gamma-linoleenzuur (
 
 🔧 *Productiesoort:* `koudgeperst`
 
-👉 Lees meer: [https://azulan.nl/atlas/zwarte-bessen-olie](https://azulan.nl/atlas/zwarte-bessen-olie)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/zwarte-bessen-olie)

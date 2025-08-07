@@ -4,4 +4,4 @@ Abrikozenpitolie is een lichte, voedende olie die rijk is aan vitamine A en E. Z
 
 🔧 *Productiesoort:* `koudgeperst`
 
-👉 Lees meer: [https://azulan.nl/atlas/abrikoospit-olie](https://azulan.nl/atlas/abrikoospit-olie)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/abrikoospit-olie)

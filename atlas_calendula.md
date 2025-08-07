@@ -4,4 +4,4 @@ Calendula-olie wordt gemaakt van de bloemblaadjes van de goudsbloem en staat bek
 
 🔧 *Productiesoort:* `maceraat`
 
-👉 Lees meer: [https://azulan.nl/atlas/calendula](https://azulan.nl/atlas/calendula)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/calendula)

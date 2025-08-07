@@ -6,4 +6,4 @@ De kracht zit dus in haar zachtheid!
 
 🔧 *Productiesoort:* `maceraat`
 
-👉 Lees meer: [https://azulan.nl/atlas/weegbree](https://azulan.nl/atlas/weegbree)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/weegbree)

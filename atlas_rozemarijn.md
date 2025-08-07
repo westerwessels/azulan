@@ -4,4 +4,4 @@ Azulan's rozemarijn extract is een krachtige, natuurlijke olie met een diepe, ar
 
 🔧 *Productiesoort:* `koudgeperst`
 
-👉 Lees meer: [https://azulan.nl/atlas/rozemarijn](https://azulan.nl/atlas/rozemarijn)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/rozemarijn)

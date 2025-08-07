@@ -4,4 +4,4 @@ Komkommerkruid olie, ook bekend als bernagieolie, is een krachtige, voedzame oli
 
 🔧 *Productiesoort:* `koudgeperst`
 
-👉 Lees meer: [https://azulan.nl/atlas/komkommerkruid-olie](https://azulan.nl/atlas/komkommerkruid-olie)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/komkommerkruid-olie)

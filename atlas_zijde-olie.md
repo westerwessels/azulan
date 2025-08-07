@@ -4,4 +4,4 @@ Dit zijde element is een natuurlijke vervanger voor synthetische siliconen in hu
 
 🔧 *Productiesoort:* `dilute`
 
-👉 Lees meer: [https://azulan.nl/atlas/zijde-olie](https://azulan.nl/atlas/zijde-olie)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/zijde-olie)

@@ -4,4 +4,4 @@ Moerasbloemolie, gewonnen uit de zaden van de Limnanthes alba en plant met prach
 
 🔧 *Productiesoort:* `koudgeperst`
 
-👉 Lees meer: [https://azulan.nl/atlas/moerasbloem-olie](https://azulan.nl/atlas/moerasbloem-olie)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/moerasbloem-olie)

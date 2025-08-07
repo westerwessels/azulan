@@ -4,4 +4,4 @@ Een beetje een vreemde eend in de Azulan-bijt, maar onmisbaar, helemaal in de wi
 
 🔧 *Productiesoort:* `koudgeperst`
 
-👉 Lees meer: [https://azulan.nl/atlas/shea-olie](https://azulan.nl/atlas/shea-olie)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/shea-olie)

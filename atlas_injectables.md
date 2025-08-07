@@ -2,4 +2,4 @@
 
 Injectables zijn vloeibare stoffen zoals botox of fillers die met een naald in de huid worden ingebracht. Ze worden gebruikt om spieren te ontspannen, volume te herstellen of rimpels op te vullen. Het effect is vaak snel zichtbaar, maar levert geen blijvend resultaat - deze vorm van ingrepen moet worden bijgehouden met herhaling. Ondanks de precisie van de handeling, is het een ingreep die de natuurlijke expressie kan verstillen. Er is veel controverse over de stoffen die ingebracht worden. Het lichaam is in staat veel stoffen op te ruimen, maar ernstige toxische stoffen inbrengen lijken niet geheel zonder risico's.
 
-👉 Lees meer: [https://azulan.nl/atlas/injectables](https://azulan.nl/atlas/injectables)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/injectables)

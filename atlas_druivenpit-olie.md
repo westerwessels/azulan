@@ -4,4 +4,4 @@ Druivenpitolie is een lichte, voedzame olie die rijk is aan antioxidanten zoals 
 
 🔧 *Productiesoort:* `koudgeperst`
 
-👉 Lees meer: [https://azulan.nl/atlas/druivenpit-olie](https://azulan.nl/atlas/druivenpit-olie)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/druivenpit-olie)

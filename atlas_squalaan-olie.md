@@ -4,4 +4,4 @@ Squalaan olie uit olijven is een lichte, zijdezachte olie die perfect aansluit b
 
 🔧 *Productiesoort:* `hydrogenering`
 
-👉 Lees meer: [https://azulan.nl/atlas/squalaan-olie](https://azulan.nl/atlas/squalaan-olie)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/squalaan-olie)

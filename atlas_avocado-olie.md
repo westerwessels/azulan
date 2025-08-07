@@ -4,4 +4,4 @@ Avocado-olie is een rijke, diep voedende olie die boordevol vitamines A, D en E 
 
 🔧 *Productiesoort:* `koudgeperst`
 
-👉 Lees meer: [https://azulan.nl/atlas/avocado-olie](https://azulan.nl/atlas/avocado-olie)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/avocado-olie)

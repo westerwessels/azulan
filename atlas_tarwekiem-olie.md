@@ -4,4 +4,4 @@ Tarwekiemolie is een intens voedende olie, rijk aan vitamine E en essentiële ve
 
 🔧 *Productiesoort:* `koudgeperst`
 
-👉 Lees meer: [https://azulan.nl/atlas/tarwekiem-olie](https://azulan.nl/atlas/tarwekiem-olie)
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/tarwekiem-olie)
