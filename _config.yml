@@ -1,0 +1,7 @@
+title: Azulan’s Atlas
+description: Overzicht van natuurlijke ingrediënten en behandelingen uit de bibliotheek van Azulan.
+theme: minima
+markdown: kramdown
+lang: nl
+plugins:
+  - jekyll-feed
