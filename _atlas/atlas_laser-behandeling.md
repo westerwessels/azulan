@@ -1,0 +1,11 @@
+---
+layout: page
+title: Laser behandeling
+permalink: /atlas/atlas_laser-behandeling/
+---
+
+# Laser behandeling
+
+Laserbehandelingen gebruiken intens licht om huidlagen gericht te verhitten en zo collageenaanmaak of celvernieuwing te stimuleren. Ze worden toegepast bij pigmentvlekken, littekens en huidveroudering. Hoewel sommige resultaten zichtbaar zijn op korte termijn, kunnen de reacties heftig zijn: roodheid, schilfering of gevoeligheid zijn niet ongewoon. De aanpak is technisch en doelgericht, maar mist soms de zachtheid en langetermijnvisie die Azulan waardeert. In plaats van samenwerking met de huid, wordt zij hier juist uitgedaagd.
+
+👉 [Lees meer op azulan.nl](https://azulan.nl/atlas/laser-behandeling)
