@@ -6,3 +6,5 @@ lang: nl
 collections:
   atlas:
     output: true
+include:
+  - atlas
